@@ -1,0 +1,1 @@
+jangan lupa sholat hehe
